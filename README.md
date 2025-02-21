@@ -13,8 +13,8 @@
 6. 신진아 (미디어디자인.영상전공)   : https://ai-vs-ai-e2thcqy.gamma.site/
 7. 유도원 (미디어디자인.영상전공)   : https://ai--3qfk1d2.gamma.site/
 8. 황관영 (미디어디자인.영상전공)   :
-9. 오성준 (컴퓨터 공학)            :
-10. 전영오 (컴퓨터 공학)           :
+9. 오성준 (컴퓨터 공학)            : gamma ai를 다 정리하고 크레딧도 없어서 url이 없습니다.
+10. 전영오 (컴퓨터 공학)           : https://e--byo65pu.gamma.site/
 11. 김지유 (AI.빅데이터학과)       : https://gamemaster-ai-ai--bhh843o.gamma.site/
 12. 김재홍 (철도소프트웨어학과)     : https://gamma.app/docs/-9uwifgqu77ftrjg
 13. 한성욱 (미디어디자인.영상전공)  : https://gamma.app/docs/AI--7bu484vwgx8xoak
